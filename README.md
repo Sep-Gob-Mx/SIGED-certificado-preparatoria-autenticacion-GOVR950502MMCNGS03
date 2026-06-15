@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOVR950502MMCNGS03
+GOVR950502MMCNGS03
